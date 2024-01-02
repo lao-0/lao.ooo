@@ -1,3 +1,6 @@
+**I DONT KNOW HOW TO DO THIS AND ITS 2AM AND IM TIRED AND I CANT FIGURE OUT HOW TO CENTER THE TEXT!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!**
+someone pls help i just want my website to exist :sob:
+
 # **![](https://autism.crd.co/assets/images/gallery02/6d04d3ad_original.gif) Lao ![](https://64.media.tumblr.com/83bd5c8456381848e97fe7c87400cb5c/tumblr_inline_p7gi234t581qfc9y0_540.gif)**
 ==**Home**== [Misc](#/misc) [Setup](#/setup)
 
